@@ -12,5 +12,5 @@ Hi, I'm a first year master student at UCLA in Mechanical engineering.
 
 The website is still under construction
 ======
-I'm sorry to note you that this website is still under construction. All the information are from the template except for this page. The rest of the website will be coming soon.
+I'm sorry to note you that this website is still under construction. All the information are from the template except for this page. The rest of the website will be coming out soon. IF you would like to contact me, please email maegjd2003@g.ucla.edu
 
